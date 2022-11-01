@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sarth577
 - 👀 I’m interested in game desgining
-- 🌱 I’m currently learning in 12 th standard
+- 🌱 I’m currently learning in 2 year of ENGINEERING(EXTC)
 - 💞️ I’m looking to collaborate on unity
 - 📫 How to reach me sarthmore28@gmail.com
 
